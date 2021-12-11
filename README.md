@@ -1,3 +1,3 @@
 # website
 
-[RAVI DAMOR ](https://ravithemore.github.io/website/web)
+[RAVI DAMOR ](https://ravithemore.github.io/website/Ravi)
